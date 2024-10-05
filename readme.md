@@ -1,0 +1,1 @@
+# aduhai malas nya mau mengkoding
