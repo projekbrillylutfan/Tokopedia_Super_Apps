@@ -1,1 +1,31 @@
-# aduhai malas nya untuk mengkoding
+# Tokopedia Clone Apps
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# Aduhai malas sekali untuk mengkoding
