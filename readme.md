@@ -1,1 +1,1 @@
-# aduhai malas nya mau mengkoding
+# aduhai malas nya untuk mengkoding
