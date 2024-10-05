@@ -29,3 +29,4 @@
 
 
 # Aduhai malas sekali untuk mengkoding
+# Kalau bisa bsk ngapain ngerjain sekarang yekan
